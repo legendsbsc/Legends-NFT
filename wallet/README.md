@@ -10,6 +10,3 @@ Email: legendsnft.bsc@gmail.com
 
 Twitter: https://twitter.com/Legends_NFTs
 
-Blog: https://medium.com/@trustwallet
-
-
